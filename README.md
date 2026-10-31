@@ -4,6 +4,8 @@
 
 <img width="953" height="280" alt="_com apple Pasteboard 8e4XlF" src="https://github.com/user-attachments/assets/d6de7521-19fa-4efa-a0f6-8ba4904594af" />
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Italianno&size=37&duration=4300&pause=400&color=441A2C&center=true&width=435&height=40&lines=Have+you+come%2C+to+acknowledge+their;presence+as+much+as+I?)](https://git.io/typing-svg)
+
 <img width="1146" height="588" alt="_com apple Pasteboard sksBxA" src="https://github.com/user-attachments/assets/632095a0-6b49-47a2-a364-2467d031265b" />
 
 
