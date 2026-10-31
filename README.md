@@ -19,3 +19,7 @@
 
 
 
+
+<img width="120" height="120" alt="Imagem GIF" src="https://github.com/user-attachments/assets/578c766c-5e1a-442a-9d80-3ccadb8c76db" />
+
+
