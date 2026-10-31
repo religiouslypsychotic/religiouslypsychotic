@@ -9,6 +9,14 @@
 
 <img width="953" height="280" alt="_com apple Pasteboard 8e4XlF" src="https://github.com/user-attachments/assets/d6de7521-19fa-4efa-a0f6-8ba4904594af" />
 
+<details>
+  <summary> </summary>
+  
+  test
+</details>
+
+
+
 
 <img width="1146" height="588" alt="_com apple Pasteboard sksBxA" src="https://github.com/user-attachments/assets/632095a0-6b49-47a2-a364-2467d031265b" />
 
@@ -20,6 +28,5 @@
 
 
 
-<img width="120" height="120" alt="Imagem GIF" src="https://github.com/user-attachments/assets/578c766c-5e1a-442a-9d80-3ccadb8c76db" />
 
 
