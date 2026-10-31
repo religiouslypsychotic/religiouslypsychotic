@@ -12,4 +12,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Italianno&size=37&duration=4300&pause=40&color=441A2C&center=true&width=435&lines=At+some+point%2C+you+became+an;amalgamation+of+all+our+memories%2C;our+joy%2C+our+grief%2C+our+anger.)](https://git.io/typing-svg)
 
 
+![untitled275-20261031132937.avif](https://user17194.na.imgto.link/public/20261031/a15eed8d71d0fce57ef069ae-untitled275-20261031132937.avif)
+
+
 
