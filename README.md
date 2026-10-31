@@ -1,6 +1,8 @@
 
+
 <img width="1146" height="588" alt="_com apple Pasteboard sksBxA" src="https://github.com/user-attachments/assets/632095a0-6b49-47a2-a364-2467d031265b" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Italianno&size=37&duration=4300&pause=400&color=441A2C&center=true&width=435&height=40&lines=At+some+point%2C+you+became+an;amalgamation+of+all+our+memories%2C;our+joy%2C+our+grief%2C+our+anger.)](https://git.io/typing-svg)
 
-<img width="560" height="240" alt="_com apple Pasteboard j9yMHI" src="https://github.com/user-attachments/assets/4b2bcb13-6730-409b-982e-e48b1a4f5795" />
+<img width="953" height="280" alt="_com apple Pasteboard 8e4XlF" src="https://github.com/user-attachments/assets/d6de7521-19fa-4efa-a0f6-8ba4904594af" />
+
