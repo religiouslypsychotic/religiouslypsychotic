@@ -1,6 +1,9 @@
 <img width="1280" height="719" alt="_com apple Pasteboard Ee9c1b" src="https://github.com/user-attachments/assets/78b757c1-cc89-4651-a519-72cad7de8ae5" />
 
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Italianno&size=37&duration=4300&pause=40&color=441A2C&width=435&lines=This+place+of+worship+is+simply+wonderful.;Such+detail...+Surely+it+is+a+gift%2C;lent+to+us+by+the+Spawn...)](https://git.io/typing-svg)
+
+
 <img width="953" height="280" alt="_com apple Pasteboard 8e4XlF" src="https://github.com/user-attachments/assets/d6de7521-19fa-4efa-a0f6-8ba4904594af" />
 
 
